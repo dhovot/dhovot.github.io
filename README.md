@@ -1,2 +1,0 @@
-# dhovot.com.co
-Dhovot
